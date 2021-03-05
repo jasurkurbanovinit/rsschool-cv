@@ -14,7 +14,7 @@ Education
 2015 - 2019
 **Westminster International University in Tashkent**
 
-    - Bachelor's Degree In Business Information Systems
+    Bachelor's Degree In Business Information Systems
 
 Work Experience
 ---
